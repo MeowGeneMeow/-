@@ -1,2 +1,2 @@
 # -
-Ｍy projects in the college life
+Ｍy projects in the college.
